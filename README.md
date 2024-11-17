@@ -1,0 +1,5 @@
+- 👋 Hi, I’m oldfriend
+- 👀 I’m interested in eat oldfriend
+- 🌱 I’m currently learning how to eat oldfriend
+- 💞️ I’m looking to collaborate on way to eat oldfriend
+- 📫 How to reach me eat oldfriend together
